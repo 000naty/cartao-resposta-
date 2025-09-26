@@ -1,1 +1,0 @@
-# cartao-resposta-
